@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @krysthintyc
+- 👀 estou interresada em aprender 
+- 🌱 meu email de contato e  krysthiny.camargo@escola.pr.gov.br
+- 💞️ estou interresada a aprender a produzir historias
+- 📫 estou aprendendo a progamar no scratch
